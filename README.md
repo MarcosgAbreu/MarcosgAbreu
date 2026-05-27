@@ -40,6 +40,6 @@ Estou aberto a conexões, parcerias estratégicas e oportunidades onde eu possa 
 
 | | |
 |---|---|
-| **E-mail** | [abreu.marcosg@gmail.com](mailto:marcosabreu.ltda@gmail.com) |
+| **E-mail** | [marcosabreu.ltda@gmail.com](mailto:marcosabreu.ltda@gmail.com) |
 | **LinkedIn** | [linkedin.com/in/marcosabreu-g](https://linkedin.com/in/marcosabreu-g) |
 | **Localização** | Brasil, RS — *Disponível para atuação remota* |
